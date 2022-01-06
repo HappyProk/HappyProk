@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HappyProk
+- 👀 I’m interested in making games!
+- 🌱 I’m currently learning programming (yeah i still suck at this point)
+- 💞️ I’m looking to collaborate on ... idk, gib mi something
+- 📫 How to reach me: IG - @happyprok
